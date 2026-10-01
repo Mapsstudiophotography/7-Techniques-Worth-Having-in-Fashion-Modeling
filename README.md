@@ -33,14 +33,20 @@ Keep your public presentation professional too. Whatever you share should suppor
 Preparing for a shoot can feel unfamiliar, especially early on. Below, our clients describe their own experiences with Maps Studio. What they say gives a personal view of the studio visit and the people they met. These are supplied review screenshots, rather than a current rating summary or a promise of modeling work.
 
 **Frequently Asked Questions**
+
 **How Can I Start Practicing Before a Professional Shoot?**
+
 Work on small changes to your expression, your posture and where your hands sit. Look at the result so you can see what changed, then practice following a specific direction instead of repeating one favorite pose.
+
 **Should My Portfolio Include Every Photograph I Like?**
 No. Pick a coherent selection that supports the work you want. Similar images repeat the same information without showing anything new.
+
 **Why Is Rehearsal Important for Runway Work?**
 A show can call for particular timing, spacing and choreography. Rehearsal is where you learn those details and see how your movement fits the presentation.
+
 **Can I Develop Modeling Skills Alongside Another Job?**
 You can organize practice and appointments around what you're available for. Use a realistic calendar and be clear about your commitments before agreeing to a session.
+
 **Does a Photoshoot Guarantee Modeling Work?**
 No. A photoshoot helps you create images, but representation and assignments come down to separate decisions. Keep that distinction in mind while planning your next step.
 
